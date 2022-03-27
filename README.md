@@ -1,4 +1,4 @@
 - 🏄🏻‍♂️ aye @nobs4one here
 - ⛵️ intersted in cool stuff. building and lurking.
 - 👨🏻‍🎓 really dig math, sports, and combining the two...
-- 📫 How to reach me - nowhere really here i guess
+- 📫 How to reach me - 🤷‍♂️
